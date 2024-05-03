@@ -9,9 +9,10 @@
 
 ⠀⠀⠀⠀Contact me⠀⠀⠀⠀
 
-🔗・Gmail - mariuselaka@gmail.com
-🍵・instagram - mariusel_aka
-📍・discord - mariuss_aka
+🔗- Gmail : mariuselaka@gmail.com
+🔗- instagram : mariusel_aka
+🔗- discord : mariuss_aka
+🔗 - My discord server : https://discord.gg/zSD7YFzs
 
 <!---
 devbymarius1/devbymarius1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
